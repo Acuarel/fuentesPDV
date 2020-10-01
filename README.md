@@ -1,4 +1,4 @@
-![](https://www.acuarel.es/wp-content/themes/acuarel/images/logo-acuarel.png)
+![](https://pdvonline.es/wp-content/uploads/2017/09/asmanagermaspdvonline-tienda-1.jpg)
 
 # Fuentes para PDV
 
